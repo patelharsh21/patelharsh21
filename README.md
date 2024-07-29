@@ -7,7 +7,7 @@
 
 - 💬 Ask me about **Data Science**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/16UDV80kIkrZJ2ClMtFGAhmPIMHQ-5cEp/view?usp=sharing](https://drive.google.com/file/d/13_t0fsz3fRUz-KGXuesrSjeuwLDHZ5ck/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/16UDV80kIkrZJ2ClMtFGAhmPIMHQ-5cEp/view?usp=sharing](https://drive.google.com/drive/folders/1ClkHhr2BjXaANjSlTSFKaTDLRck-WCXg)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
